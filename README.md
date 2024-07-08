@@ -43,6 +43,10 @@ ponytown info ![toro-inoue](https://github.com/mvffinz/mvffinz/assets/171289582/
 
 * phighting (same thing w/ homestuck)
 
+* roblox piggy
+
+* fnaf (fangames included)
+
 -------
 
 ![cat-rotate](https://github.com/mvffinz/mvffinz/assets/171289582/5a675711-ca90-46b6-a9c9-b65c9fb58fa9)
@@ -50,22 +54,28 @@ DNI![cat-rotate](https://github.com/mvffinz/mvffinz/assets/171289582/0caebdac-73
 
 * people who apply to the basic dni criteria (homophobes, rascists, etc)
 
-* LITTLE kids or grown ass adults
-
-* homestuck fandom
-
-* phighting fandom
-
 * people who sexualize others and call it "platonic"
-
-* hh/hb fans
 
 * tcoaal fans (i dont think i need to explain why)
 
-* people who think stalking or being a yandere is "cute" (its really not)
-
 * people with OVERCOMPLICATED typing quirks (those are a pain in the ass to read)
 
-* 
+* people who think acting rude is "cute"
 
-  SOME of these dont apply if we are already friends
+* people who force religion/beliefs onto others (im christian but that is just wrong, some people have religious trauma)
+
+![toro-inoue-pixels-toro-inoue](https://github.com/mvffinz/mvffinz/assets/171289582/d2f73597-9916-4091-8d99-17f555cd88aa)
+INT![toro-inoue-pixels-toro-inoue](https://github.com/mvffinz/mvffinz/assets/171289582/46d91dfd-1d7b-4481-b906-686dae6f89ef)
+
+* genuinley nice people
+
+* people w/ brainrot humor
+
+* leafypop shippers
+
+* basically same interests as me
+
+* KEWL PEOPLE ONLY!!
+
+![love-letter-heart](https://github.com/mvffinz/mvffinz/assets/171289582/6c211e70-61f0-40ae-a813-e7eb6230ab08)
+
