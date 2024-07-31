@@ -9,7 +9,7 @@
 
 ![tumblr_1f990153573df1cfb7c1dff996d8ca2c_c73c67b1_540](https://github.com/user-attachments/assets/69fda3a6-d805-4870-8201-5dbf106cb77c)
 
-✦ [ABOUT ME](https://github.com/mvffinz/ABOUT-ME) ✦ [DNI](https://basic-dni.crd.co/) ✦ [INT](https://github.com/mvffinz/INT) ✦ [SOCIALS](https://github.com/mvffinz/SOCIALS)
+✦ [ABOUT ME](https://github.com/mvffinz/ABOUT-ME) ✦ [DNI](https://basic-dni.crd.co/) ✦ [INT](https://github.com/mvffinz/INT) ✦ [SOCIALS](https://github.com/mvffinz/SOCIALS) ✦
 
 ![tumblr_1f990153573df1cfb7c1dff996d8ca2c_c73c67b1_540](https://github.com/user-attachments/assets/b3942e71-98e4-414f-ae18-5cc2c27d0f53)
 
