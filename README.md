@@ -1,6 +1,7 @@
 ![tumblr_1f990153573df1cfb7c1dff996d8ca2c_c73c67b1_540](https://github.com/user-attachments/assets/e69bc524-3089-4c3f-a93d-281affc51d7a)
 
-![download (18)](https://github.com/user-attachments/assets/e22bff1c-750f-4a2e-bd82-5b4047ffaa09)
+![Retro wallpaper](https://github.com/user-attachments/assets/8f45f1af-4fae-403a-94d9-f2a46abb1898)
+
 
 ⊹ sophia or saturn ⊹ pansexual ⊹ she/her ⊹
 
